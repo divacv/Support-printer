@@ -1,1 +1,2 @@
 # Support-printer
+IF you can't use your lenovo printer properly on your windows 10 PC then it might be due to the new update of windows 10. You can fix the <a href="https://printerisoffline.com/how-to-fix-lenovo-printer-offline-on-windows-issue-to-get-online/">lenovo printer offline windows 10</a> issue by the following some easy steps.Try to get the windows 10 older version by geting the PC. You can find the option to do this on your PC setting section. You can find the proper instruction on the official microsoft website. It wil help you to fix Lenevo printer issues.
